@@ -1,1 +1,1 @@
-This is my personal portfoliw website where I live showcased all My Notable projects and my work experience.
+This is my personal portfolio website where I have showcased all My Notable projects and work experience.
